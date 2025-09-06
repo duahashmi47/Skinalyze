@@ -134,4 +134,4 @@ Dua Noor
 
 📫 Email: duahashmi47@gmail.com
 
-🌐 GitHub: duahashmi47
+🌐 GitHub: [duahashmi47](https://github.com/duahashmi47)
